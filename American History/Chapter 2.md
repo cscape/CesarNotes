@@ -1,3 +1,5 @@
+![This section is partially complete](https://img.shields.io/badge/Status-Partial-EAA300.png?colorA=2B2B2B&style=for-the-badge)
+
 Chapter 2
 =========
 
