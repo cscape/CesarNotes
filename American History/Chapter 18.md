@@ -129,3 +129,64 @@ The Urbanization of America
 -   Also in 1882, Congress denied entry of “undesirables” and places a 50-cent
     tax on each person admitted; later legislation in the 1890s further expanded
     the list and increased the tax
+
+-   However, these laws were minimally effective; they tried to pass a literacy
+    requirement but President Grover Cleveland vetoed it
+
+-   Also, most Americans who surpassed xenophobic ones often welcomed the
+    immigrants and exerted strong political pressure against restrictionists
+
+The Urban Landscape
+-------------------
+
+### The Creation of Public Space
+
+-   By the 19th century, city structures were being reformed by planners,
+    architects, and others to establish a more ordered vision of the city
+
+-   One of the most important innovations were great urban parks; Frederick Law
+    Olmsted and Calvert Vaux were the greatest promoters of this, responsible
+    for forming Central Park and other parks in Brooklyn, Boston, Philadelphia,
+    Chicago, and Washington, D.C.
+
+-   At the same time, great public buildings: libraries, art galleries, museums,
+    theaters, concert halls, and opera houses were built, including New York’s
+    Metropolitan Museum of Art
+
+-   Wealthy residents served as patrons for these public spaces as material and
+    social aspirations grew to match their expectations
+
+-   These motives also produced valuable assets for the city too; inspired by
+    massive European projects in Paris, London, Berlin, and others, American
+    cities began to wipe out old neighborhoods and replace them with
+    sophisticated buildings
+
+-   In 1893, the Columbian Exposition in Chicago (to honor the 400th anniversary
+    of Christopher Columbus’ voyage) was constructed using the popular
+    “beaux-arts” style at the time, becoming the inspiration for what was known
+    as the “city beautiful” movement -- led by architect of the “Great White
+    City”, Daniel Burnham
+
+-   Despite their aspirations to completely change American cities, they
+    unfortunately achieved a small portion due to private landowners and
+    complicated urban politics
+
+-   In Boston in the late 1850s, a large marshy tidal area was gradually filled
+    in with neighborhoods known as “Back Bay”: taking 40 years to form, making
+    it one of the largest public works ever undertaken
+
+-   Boston wasn’t the only one; Chicago, D.C., and New York also began to expand
+    into new land and thus expand American boundaries
+
+### Housing the Well-to-Do
+
+-   One of the key problems in the growth was finding residential houses for the
+    masses, including the fact that low wages and reduced building costs meant
+    that people couldn’t afford moderate homes
+
+-   Many rich residents lived in a lavish mansions and contributed to luxurious
+    districts like Fifth Avenue in New York, Back Bay and Beacon Hill in Boston,
+    Society Hill in Philadelphia, Lake Shore Drive in Chicago, Nob Hill in San
+    Francisco, and many others
+
+-   The moderately “well-to-do” took advantage
