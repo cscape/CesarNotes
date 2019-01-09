@@ -189,4 +189,5 @@ The Urban Landscape
     Society Hill in Philadelphia, Lake Shore Drive in Chicago, Nob Hill in San
     Francisco, and many others
 
--   The moderately “well-to-do” took advantage
+-   The moderately “well-to-do” took advantage of cheaper lands near the edges
+    of cities and settled in new suburbs near railroads and riverboats
