@@ -191,3 +191,234 @@ The Urban Landscape
 
 -   The moderately “well-to-do” took advantage of cheaper lands near the edges
     of cities and settled in new suburbs near railroads and riverboats
+
+-   Real estate developers promoted these suburban neighborhoods that’d appeal
+    to the nostalgia of countrysides
+
+### Housing Workers and the Poor
+
+-   Most residents, however, couldn’t afford a house in neither the city or
+    suburbs; instead, they stayed in city centers and rented, often having
+    little bargaining power due to high demand and scarce space
+
+-   Landlords were reluctant in investing in immigrant housing and tried to
+    stuff in as many rent-paying residents as possible in small spaces -- such
+    as Philadelphia and Baltimore’s narrow brick row houses and New York’s
+    tenements
+
+-   The first tenements were built in New York in 1850 and were designed as
+    cheap lodgings and in 1870, had a law that required windows in bedrooms
+
+-   Jacob Riis, a Danish immigrant, newspaper reporter, and photographer shocked
+    the middle-class with his descriptions and pictures of his poor life in his
+    book “How the Other Half Lives” (1890), describing the horrid life he
+    experienced
+
+### Urban Transportation
+
+-   Urban growth also posed large transportation challenges as narrow roads led
+    to heavy traffic (most roads weren’t paved and formed clouds of dust and
+    large mud puddles)
+
+-   Over the decades, more and more roads were paved; however, individual people
+    needed more for day-to-day movement
+
+-   Streetcars were introduced but after the Civil War, they weren’t considered
+    fast enough
+
+-   In 1870, New York opened the first elevated railway whose noisy steam
+    engines meant fast commute times; Richmond, Virginia opened the first
+    electric trolley line in 1888. In 1897, Boston opened the first subway line
+
+-   One of the great marvels in the 1880s was the completion of the Brooklyn
+    Bridge by John A. Roebling
+
+### The Skyscraper
+
+-   Not long after the Civil War, taller buildings that exceeded the 4-5 floor
+    restriction began to appear
+
+-   The Equitable Building in New York (1870) rose 7.5 floors; as years passed,
+    even taller buildings reaching 10-12 floors appeared in growing cities and
+    the term “skyscraper” became a popular description for them
+
+Strains of Urban Life
+---------------------
+
+### Fire and Disease
+
+-   One major problem for cities (often made of wood) were fires; “great fires”
+    also occurred in Chicago and Boston in 1881
+
+-   San Francisco had a catastrophic earthquake in 1906
+
+-   Fortunately, these fires promoted innovative construction using fire-proof
+    materials and the formation of local fire departments
+
+### Environmental Degradation
+
+-   Modern ideas of environmentalism were generally unknown to most people; but,
+    the frequency of fires, disease, crowding, industrialization, and
+    urbanization shared a disturbing reality for Americans
+
+-   Improper disposal of human and industrial waste was common, which
+    contributed to water pollution; domesticated animals and their waste
+    contributed too; finally, air pollution was rampant as well, with frequent
+    perpetual “fogs” (smog) occurring from industrial life
+
+-   In the early 20th century, reformers strove to improve such conditions and
+    by 1910, cities constructed municipal sewage disposal systems
+
+-   Alice Hamilton, a physician who became an investigator for the United States
+    Bureau of Labor, was a pioneer in identifying pollution in the workplace
+
+-   Alice Hamilton documented the unbalanced and potentially dangerous
+    substances such as lead, chemical waste, and ceramic dust creating
+    widespread sickness; she published these findings to public attention
+
+-   In 1912, the federal government created the Public Health Service, which
+    focused on preventing such occupational diseases like tuberculosis, anemia,
+    and carbon monoxide poisoning, as well as attempt to create common health
+    standards for all factories
+
+-   However, since the Public Health Service had few powers of enforcement, it
+    had little impact
+
+-   The Public Health Service did fortunately establish the protection of public
+    health as a responsibility of the federal government and also helped bring
+    public attention against the conditions
+
+### Urban Poverty
+
+-   Above all, the expansions created widespread and often desperate poverty;
+    the sheer number of newcomers ensured many of them would be unable to earn
+    enough for a decent life
+
+-   Public agencies and private philanthropic organizations offered very little
+    relief as most were dominated by the middle class who believed that too much
+    help would create dependency and that their laziness and irresponsibility is
+    a result of their poverty
+
+-   Other societies like the Salvation Army (who operated in America in 1879, 1
+    year after its founding in London) concentrated more on religious revivalism
+    than homelessness and hunger itself
+
+### Crime and Violence
+
+-   Poverty and crowding eventually led to crime and violence; some minor crimes
+    like pick-pocketing, con artist actions, swindling, and stealing were
+    rampant
+
+-   However, much more dangerous crimes such as homicide and lynching spiraled
+    exponentially among all cities
+
+-   Native-born Americans believed the crimes were a result of violent immigrant
+    groups and cited the rise of gangs and criminal organizations in various
+    ethnic communities, despite themselves being able to commit crimes just as
+    easily
+
+-   The rising crime rates prompted cities to develop stronger police forces
+    compared to their original, private organizations; however, even law
+    enforcement was susceptible to corruption and brutality
+
+-   Middle-class members were fearful of urban insurrections and felt the need
+    to protect themselves, and thus began the construction of armies
+
+### The Machine and the Boss
+
+-   New immigrants who couldn’t speak English needed help in adjusting to their
+    new lives
+
+-   Despite ethnic communities promoting self-help organizations, many residents
+    turned to the political machine for assistance
+
+-   The urban machine (deriving from the chaotic growth of cities) was the
+    country’s most distinct political institutions
+
+-   As a result, a new group of urban “bosses” emerged (many being Irish); the
+    goal for a political boss was to simply win votes for their organization
+
+-   This meant a boss had to provide voters with occasional relief to win
+    loyalty of their constituents, even rewarding his followers with simple jobs
+
+-   Machines were also an asset for money-making and engaged in forms of graft
+    and corruption
+
+-   Middle-class critics saw the machines as blights on the cities and obstacles
+    to progress as well as being responsible for corruption, modernizing city
+    infrastructure, expanding government roles, and creating stability in
+    political and social climates
+
+-   Several factors made boss rule possible: one was the sheer number of
+    immigrant voters who weren’t concerned with middle-class ideas
+
+-   Another was the link between political organizations and wealthy residents
+    who served as patrons; another was the structural weaknesses of city
+    governments
+
+-   Fortunately, reformers posed public outrage against the urban machines such
+    as Tammany; however, they lacked the permanence of the machines
+
+The Rise of Mass Consumption
+----------------------------
+
+### Patterns of Income and Consumption
+
+-   The growth of demand occurred in nearly all parts of society as a result of
+    not just new techniques, but also rising incomes
+
+-   Incomes were rising for everyone, though often unevenly, often resulting in
+    the creation of vast new fortunes
+
+-   Also important to the mass market were affordable products and new
+    merchandising techniques such as ready-to-wear clothing
+
+-   Partly as a result, much larger numbers of people became concerned with
+    personal style, particularly women
+
+-   Another example was prepared food ready to cook; canned food in particular
+    and results of the techniques Gail Borden, an inventor and politician,
+    condensed milk
+
+### Chain Stores and Mail-Order Houses
+
+-   Changes in marketing also changed the ways Americans purchased goods
+
+-   Small stores faced competition from new “chain stores” like The Great
+    Atlantic and Pacific Tea Company (A&P)
+
+-   F.W. Woolworth opened his first “Five and Ten Cent Store” in Utica, New York
+    in 1879 and went on to become a national chain of dry goods stores
+
+-   Chain stores sold products at lower costs than local stores due to their
+    mass production and efficiency
+
+-   Despite opposition from traditional stores, most consumers couldn’t resist
+    the greater variety and lower prices chain stores offered
+
+-   Over time, more rural citizens gained access to the consumer world through
+    great mail-order houses
+
+-   In 1872, Montgomery Ward (Chicago-based traveling salesman) distributed a
+    catalog of goods in association with the farmers’ organization: the Grange
+
+-   By the 1880s, he was generally successful until he met competition with
+    Sears Roebuck (first created by Richard Sears in Chicago in 1887)
+
+-   Together, both men helped open thousands of rural people in the consumer
+    world
+
+### Department Stores
+
+-   In cities, the emergence of department stores also helped shape buying
+    habits
+
+-   Marshall Field in Chicago, Macy’s in New York, Abraham and Stratus in
+    Brooklyn, Jordan Marsh and Filere’s in Boston, and Wanamaker’s in
+    Philadelphia are among the best known
+
+-   One way department stores changed shopping habits was that they brought
+    together an enormous array of products from previously separated shops
+
+-   Secondly, they sought to create an atmosphere of wonder and excitement to
+    make shopping more engaging
